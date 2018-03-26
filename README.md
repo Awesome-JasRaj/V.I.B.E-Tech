@@ -1,5 +1,5 @@
-## V.I.B.E Tech
-# REVOLUTIONIZE STARTUPS
+# V.I.B.E Tech
+## REVOLUTIONIZE STARTUPS
 
 V.I.B.E Tech aka Visionary Idea Browsing Enviornment is a revolutionary idea that will change how the startups work and inturn promote more and more entrepreneurs to start their own ventures.
 
